@@ -1,0 +1,1 @@
+# junyafujii.github.io
